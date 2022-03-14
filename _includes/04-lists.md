@@ -1,0 +1,4 @@
+my favorite things are !
+- 🐱
+- 🐕
+- 🍨
